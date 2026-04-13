@@ -1,2 +1,1 @@
-# myprofil
-janganlupaklik
+MZAHS
